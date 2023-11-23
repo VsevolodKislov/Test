@@ -2,3 +2,5 @@
 
 
 Teftelka kotik)
+
+100%
